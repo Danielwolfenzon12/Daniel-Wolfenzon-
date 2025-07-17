@@ -1,1 +1,3 @@
-# Daniel-Wolfenzon-
+#INTRODUCTION TO CORPORATE FINANCE 
+CLICK THE LINK TO JOIN OUR COMMUNITY 
+https://chat.whatsapp.com/CJKHb2CUKNc8tSdZsGg1P4?mode=ac_t
