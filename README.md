@@ -1,4 +1,4 @@
 INTRODUCTION TO CORPORATE FINANCE 
 CLICK THE LINK BELOW TO JOIN OUR COMMUNITY 
 
-https://chat.whatsapp.com/CJKHb2CUKNc8tSdZsGg1P4?mode=ac_t
+https://chat.whatsapp.com/Cg3vK5IO5WuKOdGYGbKeD2?mode=ac_t
